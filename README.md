@@ -1,1 +1,0 @@
-# Add-a-Sample-Test-for-Paste-Sample
